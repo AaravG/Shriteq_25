@@ -1,1 +1,1 @@
-# Shriteq_25 d
+# Shriteq_25
